@@ -1,4 +1,4 @@
-# I don't know things here, just go to [Twitter](https://twitter.com/MelodiSmol)
+# I don't know things here, just go to [BSky](https://bsky.app/profile/melodismol.gay)
 
 I'm dumb and might've broken this lol
 
